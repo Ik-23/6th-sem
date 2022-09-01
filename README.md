@@ -1,1 +1,1 @@
-You will find all funckin' 6th sem notes here!😵‍💫
+You will find all fuckin' 6th sem notes here!😵‍💫
